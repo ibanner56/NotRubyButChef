@@ -10,6 +10,7 @@ I just stole this off the back of the Jambalaya box and fiddled with some of the
 - 1 can (4 oz) fire roasted diced green chiles, drained
 - 2 cans (14.5 oz) "salsa style" fire roasted diced tomatoes, undrained
 - 2 cups water
+- 1/4 cup roasted tomato and chipotle salsa
 - 2 Tbsp olive oil
 - 2 medium red bell pepper, chopped
 - 1 medium orange or yellow bell pepper, chopped
