@@ -10,7 +10,7 @@ Quick, simple, easy. I love these.
 - Soy sauce
 - Sesame seeds
 - Several cloves garlic, sliced
-- 1 bag Kroger french-cut green beans
+- 1 bag Kroger frozen french-cut green beans
 
 # Directions
 Heat olive oil and sesame oil in a large pan or wok. Add sesame seeds and garlic and cook until the garlic starts to brown.  
