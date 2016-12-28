@@ -18,7 +18,7 @@ I just stole this off the back of the Jambalaya box and fiddled with some of the
 - 2 medium onion, chopped
 
 # Directions
-Heat oil in a large deep skillet or dutch oven (dutch oven is bae). Add onion, bell peppers, and green chiles. Cook vegetables until the begin to soften, stirring occasionally.  
+Heat oil in a large deep skillet or dutch oven (dutch oven is bae). Add onion, bell peppers, and green chiles. Cook vegetables until they begin to soften, stirring occasionally.  
 
 Stir in tomatoes, water, salsa, and Jambalaya Mix. Bring to boil. Reduce heat and simmer for 15 minutes.  
 
