@@ -9,4 +9,4 @@ I recently realized my two biggest concerns with tracking my recipes:
 Then it hit me - I just needed version control and a remote repository.
 
 # Structural Plan
-Currently, I only have a lightweight filing system. Obviously this is going to have to change, but I'd rather let the system form organically rather than planning a robust filing system that ends up being inefficient. Once I hit a critical mass of recipes in the repo, I'll adapt the organizational paradigm. It won't exactly be a modular system, but we'll pretend that this counts as being *agile*.
+For the time being, I'm sticking to a lightweight filing system. Obviously this is going to have to change, but I'd rather let the system form organically rather than planning a robust filing system that ends up being inefficient. Once I hit a critical mass of recipes in the repo, I'll adapt the organizational paradigm. It won't exactly be a modular system, but we'll pretend that this counts as being *agile*.
