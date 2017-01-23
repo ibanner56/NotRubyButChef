@@ -1,6 +1,6 @@
 # Summary
-** Time: 3 - 4 hours **  
-** Serves: 1 - let's be honest you're going to eat them all **  
+**Time: 3 - 4 hours**  
+**Serves: 1 - let's be honest you're going to eat them all**  
 Yo who doesn't love brownies?
 
 # Ingredients
