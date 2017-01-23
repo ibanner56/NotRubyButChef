@@ -1,7 +1,7 @@
 # Summary
 **Time: 30-45 min**  
 **Serves: 4-6**  
-It's basically just guacamole, macaroni, and cheese but something about this forbidden wedding tastes so right. It's a fantastic summer dish and it went very well when I made it for a July 4th picnic.
+It's basically just guacamole, macaroni, and cheese but something about this forbidden wedding tastes so right. It's a fantastic summer dish and it went very well when I made it for a July 4th picnic. I want to try a version of this where you use baked beans instead of the avacado mixture...
 
 # Ingredients
 - 10 ounces dry elbow macaroni
