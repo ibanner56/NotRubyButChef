@@ -1,6 +1,6 @@
 # Summary
-** Time: 3-5 hours **  
-** Serves: 8-12 **  
+**Time: 3-5 hours**  
+**Serves: 8-12**  
 Another slow-cooker meatball recipe whee!  
 This one is so deliciously simple I just had to try it.
 
