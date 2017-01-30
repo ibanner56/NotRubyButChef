@@ -6,7 +6,7 @@ Be sure to use Grolsch-style bottles and don't pitch for too long or the whole b
 
 # Ingredients
 - 2.2L warm water
-- 10 oz ginger juice
+- 12 oz ginger juice
 - 16 oz lemon juice
 - 28 oz 1:1 simple syrup
 - Champagne yeast
