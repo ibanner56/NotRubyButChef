@@ -9,6 +9,7 @@ This one is so deliciously simple I just had to try it.
 - 1 14oz can whole cranberry sauce
 - 1 14oz can jellied cranberry sauce
 - 2 18oz bottles Sweet Baby Ray's Sweet and Spicy barbecue sauce
+- 1 Tbsp lemon juice
 
 # Directions
-Mix sauces together in a dutch oven over medium heat until bubbly. Add meatballs and cook on low for as long as you'd like, allowing the sauce to thicken.
+Mix sauces and lemon juice together in a dutch oven over medium heat until bubbly. Add meatballs and cook on low for as long as you'd like, allowing the sauce to thicken.
