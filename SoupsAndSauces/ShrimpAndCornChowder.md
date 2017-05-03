@@ -1,6 +1,6 @@
 # Summary
-**Time to Make: 1 hour 10 minutes (30 minutes inactive)**
-**Serves: 6**
+**Time to Make: 1 hour 10 minutes (30 minutes inactive)**  
+**Serves: 6**  
 Don't ever let anyone tell you that a humble potato can't be an amazing garnish on soup!  
 This chowder, stuffed to the brim with shrimp and corn, is finished with a sprinkling of crispy cajun-seasoned potatoes and it is absolute heaven.
 
