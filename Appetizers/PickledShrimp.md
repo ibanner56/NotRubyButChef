@@ -18,6 +18,6 @@ If you cook the shrimp yourself, boil with 2 Tbsp Old Bay.
 - 1 1/2 pounds (41/50 count) peeled and cooked shrimp, tails optional
 
 # Directions
-Mix everything but the shrimp im a large bowl. Divide the shrimp into jars and fill the jars to the top with the marinade.  
+Mix everything but the shrimp in a large bowl. Divide the shrimp into jars and fill the jars to the top with the marinade.  
 
 Seal and refrigerate for a minimum of 24 hours. Serve chilled. Keeps for at least a week.
