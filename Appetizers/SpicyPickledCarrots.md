@@ -12,11 +12,11 @@ Traditional mexican pickled carrots.
 - 1 1/2 cups water
 - 6 leaves bay whole
 - 10 peppercorns
-- 2 tsp dried Mexican oregano (See Note 1)
+- 2 tsp dried Mexican oregano
 - 1 tsp kosher salt
 
 # Directions
-Peel and slice carrots and onion into 1/4 inch thick pieces (See Note 2). Cut the stems off jalapeños and slice thin on diagonal (See Note 3). Set aside.
+Peel and slice carrots and onion into 1/4 inch thick pieces. Cut the stems off jalapeños and slice thin on diagonal. Set aside.
 
 In a large stock pot add the garlic, vinegar, water, bay leaves, peppercorns, oregano, salt. Bring to a boil and add the carrots, onion and jalapeños. Lower heat to medium-low and cook for 15 minutes, uncovered.
 
