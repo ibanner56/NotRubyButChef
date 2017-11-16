@@ -8,6 +8,7 @@ Super quick and easy cornbread that always comes out great.
 - 1 8oz bag shredded pepper jack cheese
 - 4 eggs
 - 1 can creamed corn
+- 1 (4 oz) can mild green chiles, chopped
 - 4 Tbsp butter
 
 # Directions
