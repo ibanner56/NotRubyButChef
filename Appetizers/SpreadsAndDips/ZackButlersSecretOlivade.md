@@ -1,4 +1,4 @@
-It's the easiest thing (if you have a food processor, I use my old
+"It's the easiest thing (if you have a food processor, I use my old
 small and cheap one and it does just fine).
 
 One medium container of kalamata olives from the olive bar
@@ -10,6 +10,6 @@ enough olive oil to make it smooth
 
 put in a bowl and people think you know what you're doing.
 You can get fancier but I never saw the need, tastes fine like this
-(technically without capers it's an olivade).  Serve with a baguette.
+(technically without capers it's an olivade).  Serve with a baguette."
 
 -zack
