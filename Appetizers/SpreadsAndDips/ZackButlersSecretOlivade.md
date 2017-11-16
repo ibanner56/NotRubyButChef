@@ -1,15 +1,17 @@
-"It's the easiest thing (if you have a food processor, I use my old
-small and cheap one and it does just fine).
+On Wed, Sep 13, 2017 at 8:04 PM Zack Butler <zjb@cs.rit.edu> wrote:
 
-One medium container of kalamata olives from the olive bar
-2-4 cloves of garlic by preference
-a sprig of rosemary
-enough olive oil to make it smooth
+    It's the easiest thing (if you have a food processor, I use my old
+    small and cheap one and it does just fine).
 
-10-20 seconds of processor violence
+    One medium container of kalamata olives from the olive bar
+    2-4 cloves of garlic by preference
+    a sprig of rosemary
+    enough olive oil to make it smooth
 
-put in a bowl and people think you know what you're doing.
-You can get fancier but I never saw the need, tastes fine like this
-(technically without capers it's an olivade).  Serve with a baguette."
+    10-20 seconds of processor violence
 
--zack
+    put in a bowl and people think you know what you're doing.
+    You can get fancier but I never saw the need, tastes fine like this
+    (technically without capers it's an olivade).  Serve with a baguette.
+
+    -zack
