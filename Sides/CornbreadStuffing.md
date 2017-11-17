@@ -1,7 +1,7 @@
 # Summary
 **Time: 2 hours**  
 **Serves: 6-8**  
-Pretty simple cornbread stuffing, but it's always one of my favorites around the holidays. I usually use the cornbread recipe listed under /Sides/ but I swap out the pepper jack for shredded montery jack or a "mexican" shredded cheese blend.
+Pretty simple cornbread stuffing, but it's always one of my favorites around the holidays. I usually use the cornbread recipe listed under /Breads/ but I swap out the pepper jack for shredded montery jack or a "mexican" shredded cheese blend.
 
 # Ingredients
 - 2 tablespoons extra virgin olive oil
