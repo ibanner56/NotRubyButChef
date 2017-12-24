@@ -16,6 +16,8 @@ On my first run through I picked up a nondescript block of Manchego from QFC and
 - 2/3 cup coarsely grated Manchego cheese
 
 # Directions
+Preheat oven to 400F.  
+
 Remove the stems from the mushrooms. Mince half the stems and eat the rest. Brush the mushroom caps with olive oil and set on a baking sheet. Set aside.  
 
 Pour the remaining 2/3 cup olive oil into a large skillet over medium-high heat. Add the onion and minced mushroom stems. Cook, stirring, until onions soften. Add the bread crumbs and toss and stir until toasted golden brown. Scrape the bread crumb mixture into a bowl and set aside.  
