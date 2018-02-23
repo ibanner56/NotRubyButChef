@@ -2,7 +2,9 @@
 **Time: 1 hr**  
 **Serves: 10**  
 It's a-me, baked ziti!  
-I probably double the cheese, but that's just personal preference. Realistically the recipe calls for as much dairy as you can tolerate.
+
+I probably double the cheese, but that's just personal preference.  
+Realistically the recipe calls for as much dairy as you can tolerate.
 
 # Ingredients
 - 1 pound dry ziti pasta
