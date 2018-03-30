@@ -10,7 +10,6 @@
 - dark chocolate, divided
 
 # Directions
-For the Cookies:  
 Preheat oven to 350 degrees F (175 degrees C). 
 
 Grind almonds in a food processor until fine. 
