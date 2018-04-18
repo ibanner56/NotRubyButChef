@@ -7,7 +7,7 @@
 - 2 Tbsp flour 
 - 1 cup apple juice
 - 1 cup heavy cream
-- 1 tsp better than bullion 
+- 1 tsp Better Than Bullion Vegetable Base
 - 1 shallot, chopped
 - 1/4 cup sage, chopped
 
