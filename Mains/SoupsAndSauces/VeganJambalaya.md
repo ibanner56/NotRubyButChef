@@ -1,10 +1,10 @@
 # Summary
 **Time: 60 min**  
 **Serves: 8**  
-I just stole this off the back of the Jambalaya box and fiddled with some of the ingredients.
+I just stole this off the back of the Jambalaya box and fiddled with some of the ingredients. Zats seems to be phasing out their 12 oz packages of jambalaya for 18oz 'family size' boxes, at least at our local Safeway. The recipe is for 24 oz of jambalaya mix, so aim for that.
 
 # Ingredients
-- 2 packages Zatarain's Jambalaya Mix
+- 2 packages Zatarain's Jambalaya Mix (12 oz box)
 - 1 package Tofurky Andoiulle fake sausage, sliced
 - 1 package Gardein Teriyaki Chick'n Strips, cubed, sauce discarded
 - 1 can (4 oz) fire roasted diced green chiles, drained
