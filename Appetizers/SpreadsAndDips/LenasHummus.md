@@ -13,9 +13,9 @@ Simple, easy, and delicious, it's extremely hard to get wrong and it's always a 
 - The faintest blush of olive oil (about 1/4 tsp, maybe less)
 
 # Directions
-Drain the can of chickpeas into a glass and save the liquid for later.  
+Drain the can of chickpeas into a glass or measuring cup, saving the liquid for later.  
 In a food processor, add the chickpeas, garlic, lemon, tahina, salt, and about half the liquid from the chickpeas.  
 Pulse until fine, adding the olive oil and continuing to add the chickpea liquid slowly until you reach the desired consistency.  
 
-Feel free to drizzle a bit of olive oil over the hummus once it's plated for presentation's sake, and garnish with a slice of lemon.  
+Feel free to drizzle a bit of olive oil over the hummus once it's plated, and garnish with a slice of lemon.  
 Serve with veggies, warm pita, and/or just a dash of olive tapenade.  
