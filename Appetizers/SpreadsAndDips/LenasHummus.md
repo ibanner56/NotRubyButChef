@@ -1,7 +1,7 @@
 # Summary
 **Time: 15-20 min**  
 **Serves: 6-8**  
-This is the hummus recipe that we used in-house at Caffe Lena for over a decade.  
+This is the hummus recipe that we've used in-house at Caffe Lena for several decades.  
 Simple, easy, and delicious, it's extremely hard to get it wrong and it never fails to be a hit.
 
 # Ingredients
