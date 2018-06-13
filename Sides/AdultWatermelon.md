@@ -1,6 +1,8 @@
 # Summary
 **Time: 12-18hr**  
 **Serves: 12** 
+This is watermelon and liquor...perfect for BBQ's, picnics, camping, etc.  
+Use any liquor you like, even wine works.
 
 # Ingredients
 - 1 large seedless watermelon
