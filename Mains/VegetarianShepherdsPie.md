@@ -34,10 +34,8 @@ Filling:
 - 1/2 cup frozen English peas
 
 # Directions
-Peel the potatoes and cut into 1/2-inch dice. Place in a medium saucepan and cover with cold water. Set over high heat, cover and bring to a boil.  
-Once boiling, uncover, decrease the heat to maintain a simmer and cook until tender and easily crushed with tongs, approximately 10 to 15 minutes.  
-Place the half-and-half and butter into a microwave-safe container and heat in the microwave until warmed through, about 35 seconds.  
-Drain the potatoes in a colander and then return to the saucepan. Mash the potatoes and then add the half and half, butter, salt and pepper and continue to mash until smooth. Stir in the yolk until well combined.  
+Peel the potatoes and cut into 1/2-inch dice. Place in a medium saucepan and cover with cold water. Set over high heat, cover and bring to a boil. Once boiling, uncover, decrease the heat to maintain a simmer and cook until tender and easily crushed with tongs, approximately 10 to 15 minutes.  
+Place the cream and butter into a microwave-safe container and heat in the microwave until warmed through, about 35 seconds. Drain the potatoes in a colander and then return to the saucepan. Mash the potatoes and then add the half and half, butter, salt and pepper and continue to mash until smooth. Stir in the yolk until well combined.  
 
 Preheat the oven to 400 degrees F.
 
