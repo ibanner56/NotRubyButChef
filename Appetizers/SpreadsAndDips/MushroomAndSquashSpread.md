@@ -1,7 +1,7 @@
 # Summary
 **Time: 1.5hr**  
-**Serves: 8-12**
-I know I said I never wing it, but hey I winged it. Still iterating on this one.
+**Serves: 8-12**  
+I know I've said I never wing it, but hey I winged it. Still iterating on this one.
 
 # Ingredients
 - salt
