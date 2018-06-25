@@ -26,11 +26,11 @@ While the vegetables are cooling, spread the walnuts in a single layer on a parc
 
 Empty the contents of your pan into a food processor and blend the vegetables until you have a smooth paste. Add the toasted walnuts and continue to pulse until the walnuts are processed to your desired consistency. Add pepper to taste - the salted zucchini should leave things salty enough, but you can add more here if you think you need to.
 
-**Notes:**
-If you burn the vegetables a bit and then, like an idiot, mix the burned bits back into the rest of the vegetables like I did the first time, you can add acid to help hide the burnt flavor...then a bunch of different dairy ingredients you had floating around because not it's too acidic. Regret winging things in the first place and add, approximately:  
+**Notes:**  
+If you burn the vegetables a bit and then, like an idiot, mix the burned bits back into the rest of the vegetables like I did the first time, you can add acid to help hide the burnt flavor...then a bunch of different dairy ingredients you had floating around because now it's too acidic. Regret winging things in the first place and add, approximately:  
 - 1/2 lemon, juiced
 - 1/4 c ricotta
 - 1/4 c heavy cream
 - 1 tsp unsalted butter
 
-Or you could keep an eye on things so they don't burn in the first place...or if you can't manage that, don't be an idiot and just remove the unburned vegetables into another pan rather than mixing in all the gross bits.
+Alternatively, you could keep an eye on things so they don't burn in the first place...or if you can't manage that, just don't be an idiot and remove the unburned vegetables into another pan instead of mixing in all the gross bits like I did.
