@@ -4,12 +4,13 @@
 I know I said I never wing it, but hey I winged it. Still iterating on this one.
 
 # Ingredients
+- salt
+- 2 zucchini / summer squash, chopped into quarters
 - 3 Tbsp olive oil
 - 2 lbs crimini mushrooms, coarsely chopped
 - 2 medium onions, chopped
 - 2 cloves garlic, sliced
-- 2 zucchini / summer squash, chopped into quarters
-- salt
+
 - 1 tsp sugar
 - 1/2 lemon, juiced
 - 1/4 c ricotta
