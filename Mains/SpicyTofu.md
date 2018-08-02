@@ -1,0 +1,21 @@
+# Summary
+**Time:** 2 hrs  
+**Serves:** 8  
+A saltier marinated tofu from PCC. They call it spicy tofu, but it doesn't really have much of a kick just following the base recipe.  
+I grabbed this recipe back when PCC had it up on their website for free.
+
+# Ingredients
+- 1/2 cup tamari
+- 1 teaspoon minced fresh ginger
+- 1 teaspoon minced garlic
+- 2 tablespoons brown rice vinegar
+- 1/2 teaspoon cayenne pepper
+- 1/2 cup toasted sesame oil
+- 1/2 cup olive oil
+- 1 1/4 pounds extra firm tofu
+
+# Directions
+Preheat oven to 350° F. Grease a casserole dish with 1 tablespoon sunflower oil.  
+Mix together remaining sunflower oil, orange juice concentrate, mirin, tamari, sesame oil, brown rice vinegar, garlic and ginger. Whisk well.  
+Cut tofu into 1/2-inch cubes and marinate in the above liquid in the greased casserole dish for 30 minutes, stirring occasionally with a wooden spoon. It’s best to use a wooden spoon to avoid damaging the tofu.  
+Bake tofu for 1 hour, stirring every 10 to 15 minutes. Some sauce will be absorbed into the tofu while cooking. Serve hot or cold with your favorite accompaniment. 
