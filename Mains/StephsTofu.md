@@ -1,5 +1,5 @@
 # Summary
-**Time:** 2hrs  
+**Time:** 2 hrs  
 **Serves:** 8  
 This is probably my favorite marinated tofu. I grabbed this recipe back when PCC had it up on their website for free.
 
