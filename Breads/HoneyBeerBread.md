@@ -7,7 +7,7 @@ This stuff is super easy and stupid good.
 - 3 cups (360 grams) all-purpose flour
 - 1 Tbsp baking powder
 - 1 tsp salt
-- 1 (12oz) bottle of beer
+- 2 (12oz) bottles of beer (1 for the bread, 1 for the baker)
 - 1/4 cup honey
 - 4 oz unsalted butter, divided
 
