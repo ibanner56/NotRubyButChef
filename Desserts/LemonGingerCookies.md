@@ -18,4 +18,4 @@ Roll into 1-inch balls. Place on 2 parchment-lined baking sheets; press into 2-i
 Bake at 350 degrees until golden, 12 minutes. 
 
 
-Notes: try with more ginger
+Notes: try with more ginger, chill before baking?
